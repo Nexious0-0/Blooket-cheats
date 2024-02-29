@@ -1,2 +1,2 @@
 # Blooket-cheats
-I got these from minecraft guy feel free touse them
+I got these from minecraft guy feel free to use them
